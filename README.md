@@ -1,5 +1,4 @@
-[currículo (1).pdf](https://github.com/Gabriel-Gith12/Gabriel-Gith12/files/10143580/curriculo.1.pdf)
-
+[Curriculo.pdf](https://github.com/Gabriel-Gith12/Gabriel-Gith12/files/10944979/Curriculo.pdf)
 
 
 <div align="center">
