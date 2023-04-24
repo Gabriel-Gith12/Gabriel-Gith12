@@ -1,4 +1,5 @@
-[Curriculo.pdf](https://github.com/Gabriel-Gith12/Gabriel-Gith12/files/10944979/Curriculo.pdf)
+[Currículo profissional .pdf](https://github.com/Gabriel-Gith12/Gabriel-Gith12/files/11312989/Curriculo.profissional.pdf)
+
 
 
 <div align="center">
